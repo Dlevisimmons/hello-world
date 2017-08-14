@@ -1,2 +1,3 @@
 # hello-world
-coming out 
+Whats is really most important is I  try to learn something new everyday.
+Comformt means complaceny.
